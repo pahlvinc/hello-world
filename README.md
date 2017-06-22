@@ -5,5 +5,4 @@ Hello reader,
 
 People call me Reza. 
 
-"That looks perfect now." - TJ Dishaw
-
+I want to make an addition. 
