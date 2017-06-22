@@ -5,5 +5,5 @@ Hello reader,
 
 People call me Reza. 
 
-"That looks perfect now." - TJ Dishaw
+wat
 
